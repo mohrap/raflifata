@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @raflifata
-- 👀 I’m interested in anime
+- 👀 I’m interested in anything, especially anime
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on google, tokopedia, gojek, etc
 - 📫 How to reach me it's on progress
